@@ -1,2 +1,4 @@
-# festival
-Planejamento do melhor festival de onde eu moro
+# Ricardo's Fyre Festival
+
+## Organização do evento 
+Em andamento.
