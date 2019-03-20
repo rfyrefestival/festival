@@ -39,7 +39,7 @@ Todos estão em aberto e podem sofrer mudanças
 
 ## Make up and fashion
 - Glitter
-- 
+- Espelho de mão
 
 ## Manutenção
 - Fita adesiva
