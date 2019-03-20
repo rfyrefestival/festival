@@ -3,7 +3,7 @@
 ## Conciliadora - A.C.
 
 
-## Diretora de RH - R.L.
+## Diretora de RH - R.P.
 
 
 ## DJ and Head of Merch - R.C.
